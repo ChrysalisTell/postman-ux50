@@ -1,4 +1,4 @@
-# 
+# new JetBrains IntelliJ IDEA para PC plugins é o melhor JetBrains IntelliJ IDEA para PC plugins com resolução de conflitos e perfilamento de código. Seguro, confiável e otimizado
 
 
 
